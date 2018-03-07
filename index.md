@@ -8,3 +8,4 @@ Regardless, this will be the one stop shop for all your _**Kbeznak Parmatonic**_
 Keep watching this space for more information. **Kbeznak Parmatonic!!!**
 
 All of my information has been sourced from [here](http://people.tamu.edu/~kaushik.raju/kbeznakparmatonic)
+This page is brought to you by kaushik.raju
